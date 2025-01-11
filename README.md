@@ -1,4 +1,4 @@
-# Página de Receitas 🌍✈️
+# Página de Receitas
 
 ___
 
